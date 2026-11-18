@@ -1,2 +1,2 @@
 # Bogdan-Neamtu-CV
-Academic profile, curriculum vitae, and research interests
+Welcome to my academic and research profile
